@@ -1,3 +1,12 @@
+interviewed Kevin and Nick:
+
+https://docs.google.com/spreadsheets/d/1b43gluv-or9_qjH18fs-BAoEhDWGcbOm9mGjpygrDuk/edit?usp=sharing
+
+more soon...
+
+
+
+
 # User Research Lab
 
 ## I MUST HAVE:
